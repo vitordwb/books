@@ -1,8 +1,7 @@
-# books
-books that can be helpful
-
 intellectual property doesn't exist
-propriedade intelectual não exist
+
+propriedade intelectual não existe
 
 no right reserved
+
 nenhum direto reservado
