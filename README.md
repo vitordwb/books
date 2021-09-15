@@ -1,7 +1,13 @@
 intellectual property doesn't exist
 
-propriedade intelectual não existe
-
 no right reserved
 
+information for everyone
+
+[pt-br]
+
+propriedade intelectual não existe
+
 nenhum direto reservado
+
+informação para todos
